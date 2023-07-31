@@ -5,3 +5,5 @@
     
 Senior Marketing Data Analyst
 
+Born in 1919
+
