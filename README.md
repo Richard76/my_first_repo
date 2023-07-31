@@ -3,6 +3,6 @@
 
  Richard Farr
     
-Marketing Data Analyst
+Senior Marketing Data Analyst
 
 
